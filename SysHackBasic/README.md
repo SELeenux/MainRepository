@@ -2,5 +2,5 @@
 
 1. 민수 is hansome
 
-2. 
+2. 신철 is hansome
 
